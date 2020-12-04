@@ -1,0 +1,5 @@
+1. Sift the flour, baking soda, and salt into a medium bowl, set aside. Whisk the eggs and vanilla together in a liquid measuring cup with a spout, set aside. Lightly brush loaf pan with butter. Preheat the oven to 350 degrees F.
+
+2. In a mixer fitted with the paddle attachment, cream the butter and sugar until light and fluffy. Gradually pour the egg mixture into the butter while mixing until incorporated. Add the bananas and remove the bowl from the mixer.
+
+3. With a spatula, mix in the flour mixture until just incorporated. Fold in the nuts and transfer the batter to the prepared pan. Bake for 55 minutes or until a toothpick inserted into the center of the bread comes out clean. Cool the bread in the pan on a wire rack for 5 minutes. Turn the bread out of the pan and let cool completely on the rack.
